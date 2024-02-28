@@ -5,7 +5,13 @@ Los simpsons
 - Futurama
 - Robert Downey Jr
 - Johnny Depp
+- La roca
+- Robert Downie Jr
+- Selena Gomes
+- Justin Beiber
+
 
 [Puedes ver la serie aquí](https://www.starplus.com/es-419/series/family-guy/50eOTyhnHBoi)
   ![Protagonista de la serie](https://upload.wikimedia.org/wikipedia/en/c/c2/Peter_Griffin.png)
+  ![Personaje favorito](https://static.wikia.nocookie.net/mighty355/images/f/fb/Brian_griffin_by_mighty355-d7u8wtl.png/revision/latest?cb=20150629144513)
   
